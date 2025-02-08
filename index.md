@@ -1,1 +1,3 @@
 years and years of self-realization unpacking here...
+peeling away fabricated layers of my personality to understand and experience my true self 
+focused on realism
